@@ -1,3 +1,9 @@
-**Bem vindo ao meu perfil,sou aluno da escola VEREADORA ALAY JOSE CORREA**
-meu nome e gabriel
+**Bem vindo ao meu perfil,
+
+meu nome e Gabriel
+
+sou aluno da escola VEREADOR ALAY JOSE CORREA**
+
 tenho 18 ano
+
+Pretendo utilizar a plataforma para postar meus trabalhos
